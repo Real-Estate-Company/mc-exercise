@@ -7,3 +7,5 @@ aseel abu saifan im 25 years old   i studed public adimstration
 Hey Yo
 
 Nedal Al Saleh I have a bachelor's degree of Information Technology
+
+I'm Odai Sadaqa, 29 years old. I have a master degree in Computer Science espically Machine Learning Techniques.
