@@ -1,0 +1,1 @@
+My name is Suhaib Okour. I studied English Language and Linguistics at Jordan University of Science and Technology. I used to work at a cars dealership company in Sweden but had to comeback to finish my MA studies in applied linguistics. I am currently having a course in software development at LTUC.
